@@ -174,3 +174,9 @@ https://ai.free-teams.ru/blog/workzilla-birzha-frilansa/
 https://ai.free-teams.ru/blog/zapusk-reklamnoy-kampanii-vk/
 https://ai.free-teams.ru/blog/trendy-marketinga-2026/
 https://ai.free-teams.ru/blog/osnovy-marketinga/
+
+
+https://free-teams.ru/lending-s-ii/
+https://free-teams.ru/lending-s-ii-i-frilanserami/
+https://free-teams.ru/sayt-s-ii/
+https://free-teams.ru/sayt-s-ii-i-frilanserami/
